@@ -8,14 +8,41 @@ SUP LEWIS
 https://www.bourncreative.com/define-your-ideal-client-persona/
 Bio (where your from, stuff about you)
 
+* Hiya, Cat Butler here. I grew up on the sunny south-west coast in Lyme Regis! I moved to Birmingham to study in 2013 and have been living and working here for 8 years, flitting from Selly Park and Bearwood. 
+
+* I am a freelance producer and theatre maker. I co-founded my own performance company LYNNEBEC in 2018 and have been making work in outdoor spaces, festivals and site-specific spaces. Currently developing an educational arts and science project aimed at increasing the representation of women in STEM. 
+
 Dream: if you could you would... 
+* CODING OBVIOUSLY, but also fancy the idea of being a paraglider instructer.
+
 Personality traits (good and bad)
+* Warm, bubbly human with a liking for puns. Patient and resiliant 
+* I’m perfect. No bad traits. 
+
 Hobbies & Interests (food, music)
+* Dancing
+* Crochet 
+* Capoera 
+* Walking & Hiking 
+* Live music 
+* Cooking 
+* Music: (TBC)
+* Fav podcast: Hip Hop Saved My Life with Romesh Ranganathan 
+
 Desires and dreams
+* Would love to walk Japan from top to bottom one day 
+
 3 things you wouldn't know about us
+* I have a cabaret act called Frede Butler 
+* I took part in the Wayfaring Sailing Championships 2006
+* I volunteer for Age UK
+
 Frustrations
+* Social Media 
+
 Describe your Perfect Day 
-Picture Gallery  
+* Up early to fit in some reading, a coffee and a movement class. A walk in the afternoon before cooking up a big pot of food for friends in the evening. Then heading out for a live gig somewhere. 
+
 
 **Layout Aesthetic**
 
