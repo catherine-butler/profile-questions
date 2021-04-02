@@ -1,7 +1,7 @@
 Aim: to tell school of code pals more about us!
 Info / 
 
-**_Name_** 
+**Catherine Butler** 
 https://www.bourncreative.com/define-your-ideal-client-persona/
 Bio (where your from, stuff about you)
 Dream: if you could you would... 
@@ -12,6 +12,19 @@ Desires and dreams
 Frustrations
 Describe your Perfect Day 
 Picture Gallery  
+
+**Leiws Murray** 
+https://www.bourncreative.com/define-your-ideal-client-persona/
+Bio (where your from, stuff about you)
+Dream: if you could you would... 
+Personality traits (good and bad)
+Hobbies & Interests (food, music)
+Desires and dreams
+3 things you wouldn't know about us
+Frustrations
+Describe your Perfect Day 
+Picture Gallery  
+
 
 **_Layout_**
 
