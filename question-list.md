@@ -23,6 +23,7 @@ Picture Gallery
 **Leiws Murray** 
 https://www.bourncreative.com/define-your-ideal-client-persona/
 Bio (where your from, stuff about you)
+* lewis murray
 Dream: if you could you would... 
 Personality traits (good and bad)
 Hobbies & Interests (food, music)
