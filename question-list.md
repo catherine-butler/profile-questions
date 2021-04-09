@@ -17,7 +17,7 @@ Dream: if you could you would...
 
 Personality traits (good and bad)
 * Warm, bubbly human with a liking for puns. Patient and resiliant 
-* I’m perfect. No bad traits. 
+* I am that person that uses the same butter knife to get marmite out the jar. 
 
 Hobbies & Interests (food, music)
 * Dancing
@@ -26,7 +26,7 @@ Hobbies & Interests (food, music)
 * Walking & Hiking 
 * Live music 
 * Cooking 
-* Music: (TBC)
+* Music: I love all kinds of music, some favs are Little Dragon, Anderson Pakk, Fela Kuti, Lee Scratch Perry, Bowie, Laura Marling, Daphni 
 * Fav podcast: Hip Hop Saved My Life with Romesh Ranganathan 
 
 Desires and dreams
